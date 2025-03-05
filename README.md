@@ -1,3 +1,5 @@
 # Taller2HTML
 
-mi condicion enamorado de un hombre que siempre me rompe el an
+Laura Alejandra Caballero Prada 1152322
+
+Juan Sebastian Sanguino Rincon 1152323
